@@ -5,5 +5,5 @@
 <p align="center"> " those fcking <ins>X</ins> bastards tried to <em><strong>kill all of us</strong></em> !</p>
 
 <p align="center"> they <em>killed</em> some of us, including my <strong>FRIEND<strong/> . " </p>
-<p align="center"> <img src= "https://github.com/user-attachments/assets/c11a4f71-ec86-4799-9d36-b994bc75994e" width="25">  <img src= "https://github.com/user-attachments/assets/904871d1-d34f-42b7-94c5-0abe072e84f6" width="25">  <img src= "https://github.com/user-attachments/assets/92b2cfe9-7367-406e-ada5-36f03a647924" width="30"> </p>
+<p align="center"> <img src= "https://github.com/user-attachments/assets/6f9423eb-6657-4c2c-b23b-bb7b9168b1ef" width="25">  <img src= "https://github.com/user-attachments/assets/013b127b-b537-46db-b93e-3e3abcd4619c" width="30">  <img src= "https://github.com/user-attachments/assets/45c950ad-e466-4f6b-9051-f5f33cf7a730" width="25"> </p>
 <p align="center"> <img src="https://github.com/user-attachments/assets/14d1570f-3bee-41ec-808f-b737c3c64322" width=800></p>
