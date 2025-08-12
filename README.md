@@ -1,4 +1,4 @@
-# [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3126fmw2f6cuhyykbxzkfgyn7ize&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3126fmw2f6cuhyykbxzkfgyn7ize&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=efe6da&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <p align="center"> <img src= "https://github.com/user-attachments/assets/cad61179-8383-4649-97c6-826c5e1deefd" width="1000"> </p>
 <p align="center"> " those fcking <ins>X</ins> bastards tried to <em><strong>kill all of us</strong></em> !</p>
 
