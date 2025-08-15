@@ -1,7 +1,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3126fmw2f6cuhyykbxzkfgyn7ize&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=efe6da&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <p align="center"> <img src= "https://github.com/user-attachments/assets/6cba3f99-e7a7-4cbb-8c23-9c58dfa37b72" width="700"> </p>
 <p align="center"> " those fcking <ins>X</ins> bastards tried to <em><strong>kill all of us</strong></em> !</p>
-<p align="center"><img src="https://github.com/user-attachments/assets/1ef2220f-d5ba-4bc6-aac8-22a978f9d5f0" width="700"> /></p>
+<p align="center"><img src="https://github.com/user-attachments/assets/1ef2220f-d5ba-4bc6-aac8-22a978f9d5f0" width="700"> </p>
 
 <p align="center"> they <em>killed</em> some of us, including my <strong>FRIEND<strong/> . " </p>
 <p align="center"> <img src= "https://github.com/user-attachments/assets/a3026d2a-8a33-4e45-b71a-244bbb23afeb" width="800"> </p>
