@@ -5,8 +5,8 @@
   <p align="center"><img src="https://github.com/user-attachments/assets/1ef2220f-d5ba-4bc6-aac8-22a978f9d5f0" width="700"> </p>
 
 <p align="center"> <img src= "https://github.com/user-attachments/assets/a3026d2a-8a33-4e45-b71a-244bbb23afeb" width="800"> </p>
-  <p align="center"> <img src= "https://github.com/user-attachments/assets/6b7d86df-c394-486f-8bd9-88d8bd7f62e6" width="25"> or <ins>alexander</ins> , <ins>chishiya</ins> , <ins>si-eun</ins> . <img src= "https://github.com/user-attachments/assets/68413cbb-9f6c-4d30-a0f6-5c0a80e987d8" width="25"> he / they / pill . <img src= "https://github.com/user-attachments/assets/02db4e92-222f-4fc7-926a-0042db2b8fd3" width="25"> </p>
-<p align="center"> <em><strong>HEAVY</strong></em> <em>nam - gyu</em> + <em>nam - ra</em> + <em>alexander h.</em> + <em>chishiya</em> + <em>si - eun</em> fictionkin and id </p>
+  <p align="center"> <img src= "https://github.com/user-attachments/assets/6b7d86df-c394-486f-8bd9-88d8bd7f62e6" width="25"> or <ins>alex</ins> , <ins>shiya</ins> , <ins>haji</ins> . <img src= "https://github.com/user-attachments/assets/68413cbb-9f6c-4d30-a0f6-5c0a80e987d8" width="25"> he / they / pill . <img src= "https://github.com/user-attachments/assets/02db4e92-222f-4fc7-926a-0042db2b8fd3" width="25"> </p>
+<p align="center"> <em><strong>HEAVY</strong></em> <em>nam - gyu</em> + <em>nam - ra</em> + <em>alexander h.</em> + <em>chishiya</em> + <em>si - eun</em> + <em>hajime</em> + <em>izuru</em> fictionkin and id </p>
 <p align="center"> duplicates / doubles or wtv <em><strong>IWEC</strong></em> always !! </p>
   <p align="center"> <strong>very</strong> selective <em>thanos</em> yume !! ^_^ </p> 
 <p align="center"><img src="https://github.com/user-attachments/assets/1ef2220f-d5ba-4bc6-aac8-22a978f9d5f0" width="700"> </p>
